@@ -1,0 +1,5 @@
+- 👋 Hi, I’m SOF AMS
+- 👀 I’m interested in EDITING/MAKING NEW THINGS
+- 🌱 I’m currently learning How TO MAKE FAN ART
+- 💞️ I’m looking to collaborate on anything really-
+- 📫 How to reach me: Just reply to me on here or my gmail > brolylssj123456@gmail.com (I am barely active there)
